@@ -149,7 +149,7 @@ Do **not** use this tool on networks or systems you do not have explicit permiss
 **Pratham**  
 > 🧠 Computer Science Student | 🛡️ Cybersecurity Enthusiast | 🎮 Valorant Lover  
 
-📧 Reach out: [Your email or GitHub profile link]  
+📧 Reach out: [shpratham18@gmail.com]  
 
 ---
 
